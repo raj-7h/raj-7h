@@ -1,4 +1,4 @@
-## Hi, I'm Raj ✨
+## Hi, I’m Raj — I design, develop, and test web applications. 💻⚙️
 
 🧠 MCA student at NIET         
 🧪 Manual Tester with a keen eye for detail  
